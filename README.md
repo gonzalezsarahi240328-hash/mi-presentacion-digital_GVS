@@ -7,6 +7,7 @@ Sarahi Gonzalez Vejar
 1. 🍰 Cocinar postres
 2. 🏊 Practicar natación
 3. 📺 Ver series, en especial *The Chosen*
+4. Estudiar
 
 ## Mi meta
 🎓 Lograr terminar mi carrera universitaria.
